@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+- Passion of the christ
+- Sweet salamander
+- Good gravy
+- Eatin a burger with no honey mustard 
