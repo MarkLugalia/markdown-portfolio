@@ -1,1 +1,2 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+I am _very hot and **extremely** attractive and a hit at the parties_ 
+I also make _**DUBSTEP EDM HARDSTYLE BASS BOOSTED SYMPHONIES**_
